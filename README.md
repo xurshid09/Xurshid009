@@ -1,2 +1,0 @@
-# Xurshid009
-views
